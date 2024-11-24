@@ -1,1 +1,2 @@
-1. god doesn't exist
+1. God doesn't exist
+2. gods exist
